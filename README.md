@@ -35,7 +35,7 @@ Currently looking for opportunities as a **Digital Marketing Specialist** 🚀
 ---
 
 ## Pinned Repositories  
-Here are some of the projects I have been working on:  
+Here are some of the projects I have been working on :  
 📌 **Coming soon!** Stay tuned for updates 🚀  
 
 ---
